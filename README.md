@@ -1,4 +1,4 @@
-# Hi, I'm Sydney Cochron 👋
+# Hi, I'm Sydney C 👋
 
 ### Scientist | Health & Safety Specialist | Aspiring Security & Compliance Professional
 
